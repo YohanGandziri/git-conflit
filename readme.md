@@ -1,4 +1,4 @@
-<p>Encore une fois, je dois y croire
+<p>Encore deux fois et trois pour etre sympathiquement cool, je dois y croire
 Au loin, je vois lueur d'espoir
 Tant d'vérité à éviter le temps d'un songe
 Parfois la nuit, j'entends l'orage se rapprocher (Se rapprocher)
